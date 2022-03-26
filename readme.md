@@ -1,1 +1,1 @@
-## Make Apps Not War!
+Make Apps Not War!
